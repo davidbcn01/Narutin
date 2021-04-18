@@ -1,1 +1,1 @@
-Cosas que hacer: acabadando colisiones y buffando a naruto haciendolo mas chiquito https://www.youtube.com/watch?v=wEWF2xh5E8s
+Narutin es un juego basado en el magnifico anime Naruto, consiste en esquivar proyectiles durante el mayor tiempo posible
